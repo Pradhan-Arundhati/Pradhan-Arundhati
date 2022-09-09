@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Arundhhati Pradhan
+- 👋 Hi, I’m Arundhati Pradhan
 <!---
 - 👀 I’m interested in 
 - 🌱 I’m currently learning ...
